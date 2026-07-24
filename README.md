@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Peace be upon you, because you have persevered!" How excellent, then, this fulfilment in the hereafter!* — **Ar-Ra'd (13:24)**
+> 📖 *so constituted that I cannot say anything about God but the truth. I have now come unto you with a clear evidence from your Sustainer: let, then, the children of Israel go with me!"* — **Al-A'raaf (7:105)**
 <!-- quran-verse-end -->
 
 ---
