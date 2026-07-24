@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so constituted that I cannot say anything about God but the truth. I have now come unto you with a clear evidence from your Sustainer: let, then, the children of Israel go with me!"* — **Al-A'raaf (7:105)**
+> 📖 *HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;* — **Ar-Ra'd (13:12)**
 <!-- quran-verse-end -->
 
 ---
