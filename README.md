@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”* — **Al-Hujuraat (49:14)**
+> 📖 *HAVE THE STORIES of those [deniers of the truth] who lived before you never yet come within your ken - [the stories of] the people of Noah, and of [the tribes of] `Ad and Thamud, and of those who came after them? None knows them [now] save God. There came unto them their apostles with all evidence of the truth -but they covered their mouths with their hands and answered: "Behold, we refuse to regard as true the message with which you [claim to] have been entrusted; and, behold, we are in grave doubt, amounting to suspicion, about [the meaning of] your call to us!"* — **Ibrahim (14:9)**
 <!-- quran-verse-end -->
 
 ---
